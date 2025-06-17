@@ -114,5 +114,5 @@ Open a Pull Request.
 
 ## 🔗 Connect with Me
 
-📧 Email: borhanhosen3@gmail.com
-🔗 GitHub: [BorhanHosen](https://github.com/BorhanHosen)
+📧 Email: mdridoyan350@gmail.com
+🔗 GitHub:Ridoyan06730
